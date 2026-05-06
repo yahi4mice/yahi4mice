@@ -6,7 +6,7 @@
 
 </p>
 <p align="center">
-  <b>cupid</b>/kyle (<a href="https://pronouns.cc/@irlcupid">+</a>) <img src="https://i.postimg.cc/76GFHx9N/IMG-4962.gif" width="10px"> they/it collectively <img src="https://i.postimg.cc/76GFHx9N/IMG-4962.gif" width="10px"> 20 [1/18]
+  <b>cupid</b>/emmie (<a href="https://pronouns.cc/@irlcupid">+</a>) <img src="https://i.postimg.cc/76GFHx9N/IMG-4962.gif" width="10px"> it/none collectively <img src="https://i.postimg.cc/76GFHx9N/IMG-4962.gif" width="10px"> 20 [1/18]
   <br><br>
 <i>no strict dni just dont be weird</i>
 <br>did system , bpdtistic disabled poc
