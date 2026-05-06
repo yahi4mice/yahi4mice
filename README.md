@@ -10,7 +10,6 @@
   <br><br>
 <i>no strict dni just dont be weird</i>
 <br>did system , bpdtistic disabled poc
-<br><b>partner systems with our beloveds for life @Sawtrap
 <br><br>
 usually always on busy, we don't tend to enjoy interacting with others due to being socially adverse :(
 <br> <b>please draw on our strawpage</b>
